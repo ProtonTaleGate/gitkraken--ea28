@@ -1,4 +1,4 @@
-# 
+# new GitKraken for PC | GitKraken for Windows Snippet | cherry-picking + conflict-resolution is the best GitKraken for PC | GitKraken for Windows snippet, featuring cherry-picking
 
 
 
